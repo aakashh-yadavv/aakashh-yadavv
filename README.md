@@ -19,8 +19,8 @@
 
 ## 🌐 Connect
 
-**[GitHub](https://github.com/aakashh-yadavv)** · **[LinkedIn](https://www.linkedin.com/in/akash-yadav2135/)** · **[Instagram](https://www.instagram.com/aakashhx21/)**
+**[GitHub](https://github.com/aakashh-yadavv)** · **[LinkedIn](https://www.linkedin.com/in/akash-yadav2135/)** · **[Instagram](https://www.instagram.com/akashhx21/)**
 
 - GitHub: <https://github.com/aakashh-yadavv>
 - LinkedIn: <https://www.linkedin.com/in/akash-yadav2135/>
-- Instagram: <https://www.instagram.com/aakashhx21/>
+- Instagram: <https://www.instagram.com/akashhx21/>
